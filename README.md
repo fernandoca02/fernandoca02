@@ -8,4 +8,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 ## Você pode entrar em contato comigo 
 00001093057658sp@al.educacao.sp.gov.br
 
-![https://tenor.com/bL6R9.gif](link)
+![](https://tenor.com/bL6R9.gif)
